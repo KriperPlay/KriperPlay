@@ -4,6 +4,5 @@
 - 📫 How to reach me:
 Discord - .n1ne_
 
-Eng:
 Linux power!
 Windows grave!
