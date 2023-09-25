@@ -4,6 +4,6 @@
 - 📫 How to reach me:
 - 🛜 Discord - .n1ne_
 - 🛜 YT - https://www.youtube.com/channel/UCdnuUUfZ3dGg9pCaQCQHIzQ
-
+```
 Linux power!
-Windows grave!
+Windows grave!```
