@@ -6,4 +6,4 @@
 - 🛜 YT - https://www.youtube.com/channel/UCdnuUUfZ3dGg9pCaQCQHIzQ
 ```
 Linux power!
-Windows grave!```
+Windows grave!
