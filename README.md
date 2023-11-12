@@ -1,1 +1,1 @@
-![snippet(5)](https://github.com/KriperPlay/KriperPlay/assets/92634754/4a9c46e2-e58c-4a7b-a013-54283eeb0ccc)
+![snippet(6)](https://github.com/KriperPlay/KriperPlay/assets/92634754/a822c4b1-2f9f-4650-a590-8363edba8aaf)
